@@ -1,0 +1,2 @@
+PLEASE JOIN DISCORD IT WILL HELP ME ALOT
+https://discord.gg/cwF9J6hpdd
